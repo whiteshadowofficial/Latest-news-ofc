@@ -1,6 +1,11 @@
 @Latest News OFC✍︎🔥🎭᭄
 
-[hisl] (https://telegra.ph/file/569d43764bf820bf07247.jpg)
+
+<div align="center">
+
+  <img border-radius: 15px src="https://telegra.ph/file/569d43764bf820bf07247.jpg" width="200" height="200"/>
+
+  <p align="center">
 
 𝙿𝙾𝚆𝙴𝚁𝙳 𝚋𝚢  ❯❯❯  𝙷𝙸𝚂𝙻 𝙰𝙳𝙼𝙸𝙽 𝙲𝚁𝙴𝚆™ 2022    ❮❮❮
 
