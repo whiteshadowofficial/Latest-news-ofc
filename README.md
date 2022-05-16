@@ -1,5 +1,7 @@
 @Latest News OFC✍︎🔥🎭᭄
 
+[hisl] (https://telegra.ph/file/569d43764bf820bf07247.jpg)
+
 𝙿𝙾𝚆𝙴𝚁𝙳 𝚋𝚢  ❯❯❯  𝙷𝙸𝚂𝙻 𝙰𝙳𝙼𝙸𝙽 𝙲𝚁𝙴𝚆™ 2022    ❮❮❮
 
 https://chat.whatsapp.com/IaGjyshY9E9Egcpmjw5XkM
